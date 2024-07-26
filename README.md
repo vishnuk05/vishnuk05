@@ -22,7 +22,7 @@ and collaborating with diverse teams to create innovative solutions.
 
 ## Get in Touch 📬
 
-- **[LinkedIn]**(https://www.linkedin.com/in/vishnu-k-79846629b/)
+- **[LinkedIn]**(linkedin.com/in/vishnukappunkara)
 
 
 
